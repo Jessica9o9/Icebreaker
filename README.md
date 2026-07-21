@@ -1,3 +1,3 @@
 # Icebreaker
 
-## Name: Jessica C.
+## Name: Jessica C., Shlomo Zebak
